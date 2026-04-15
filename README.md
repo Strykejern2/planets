@@ -4,6 +4,6 @@
 
 https://shorturl.at/gxHHx      
 
-<img width="666" height="641" alt="image" src="https://github.com/user-attachments/assets/8d12598c-1a15-419d-ac13-e8f5133688e6" />
+<img width="333" height="320,5" alt="image" src="https://github.com/user-attachments/assets/8d12598c-1a15-419d-ac13-e8f5133688e6" />
 
 
